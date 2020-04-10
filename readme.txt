@@ -12,4 +12,9 @@ it does feel like one falls while one rises. It's
 not easy to have faith in this juggling of abilities. 
 and even more difficult to feel progress if I try to 
 advance all skills at once...OMG!
+
+I just need to have faith that doing the next right thing
+will inevitably take me where I want to go, such as 
+on mountains. I always say, it's mathematical!
+So what's the next right thing?
 */
